@@ -1,0 +1,2 @@
+# office_2025_activator
+office_2025_activator
